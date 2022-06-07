@@ -1,1 +1,1 @@
-https://Alderekto.github.io/rsschool-cv/cv
+https://Alderekto.github.io/rsschool-cv/
